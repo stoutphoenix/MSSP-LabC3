@@ -1,1 +1,17 @@
-# This is the best repository of all time. All the code is flawless.
+'
+                 ,xNMM.      
+               .OMMMMo         
+               OMMM0,          
+     .;loddo:' loolloddol;.    
+   cKMMMMMMMMMMNWMMMMMMMMMM0:   
+ .KMMMMMMMMMMMMMMMMMMMMMMMWd.    
+ XMMMMMMMMMMMMMMMMMMMMMMMX.   
+;MMMMMMMMMMMMMMMMMMMMMMMM:    
+:MMMMMMMMMMMMMMMMMMMMMMMM:       
+.MMMMMMMMMMMMMMMMMMMMMMMMX.    
+ kMMMMMMMMMMMMMMMMMMMMMMMMWd.   
+ .XMMMMMMMMMMMMMMMMMMMMMMMMMMk  
+  .XMMMMMMMMMMMMMMMMMMMMMMMMK. 
+    kMMMMMMMMMMMMMMMMMMMMMMd   
+     ;KMMMMMMMWXXWMMMMMMMk.  
+       .cooc,.    .,coo:.
