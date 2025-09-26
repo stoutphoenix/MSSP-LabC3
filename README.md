@@ -1,2 +1,3 @@
 # Read me
-Please read this. This is really important.
+## A github repository for learning the process of Github in RStudio
+### Header
